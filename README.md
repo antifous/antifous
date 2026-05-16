@@ -1,4 +1,4 @@
-
+![](https://komarev.com/ghpvc/?username=antifous&label=^+^+&style=flat&abbreviated=true)
 ## <img width="735" height="490" alt="image" src="https://github.com/user-attachments/assets/3948db18-11de-4766-b044-bd63ab9e8fc0" />
 
 ## ⠀⠀❝ 𝓝𝓸𝓽𝓱𝓲𝓷𝓰 𝓲𝓼 𝓻𝓮𝓪𝓵 𝓪𝓷𝓭 𝓷𝓸𝓽𝓱𝓲𝓷𝓰 𝓽𝓸 𝓰𝓮𝓽 𝓱𝓾𝓷𝓰 𝓪𝓫𝓸𝓾𝓽. ❞
