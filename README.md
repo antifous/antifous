@@ -1,5 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=antifous&label=you+feel+a+fool+&style=flat&abbreviated=true)
-## <img width="735" height="490" alt="image" src="https://github.com/user-attachments/assets/3948db18-11de-4766-b044-bd63ab9e8fc0" />
+## <img width="1200" height="800" alt="image" src="https://github.com/user-attachments/assets/8dbc84e7-3838-490b-ad9a-826f6a1aa563" />
+
 
 ## ⠀⠀❝ 𝓝𝓸𝓽𝓱𝓲𝓷𝓰 𝓲𝓼 𝓻𝓮𝓪𝓵 𝓪𝓷𝓭 𝓷𝓸𝓽𝓱𝓲𝓷𝓰 𝓽𝓸 𝓰𝓮𝓽 𝓱𝓾𝓷𝓰 𝓪𝓫𝓸𝓾𝓽. ❞
  ⠀⠀𝘥𝘯𝘪 : 𝘣𝘢𝘴𝘦, 𝘱𝘦𝘰𝘱𝘭𝘦 𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘱𝘢𝘴𝘵 / 𝘧𝘰𝘳𝘮𝘦𝘳 𝘧𝘳𝘪𝘦𝘯𝘥𝘴, 𝘩𝘺𝘱𝘰𝘤𝘳𝘪𝘵𝘦𝘴
