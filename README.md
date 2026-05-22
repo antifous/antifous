@@ -1,6 +1,5 @@
-![](https://komarev.com/ghpvc/?username=antifous&label=you+feel+a+fool+&style=flat&abbreviated=true)
-## <img width="1200" height="800" alt="image" src="https://github.com/user-attachments/assets/8dbc84e7-3838-490b-ad9a-826f6a1aa563" />
 
+## <img width="735" height="490" alt="image" src="https://github.com/user-attachments/assets/f47652ec-32c3-47fa-b345-da1b5709c9f7" />
 
 ## ⠀⠀❝ 𝓝𝓸𝓽𝓱𝓲𝓷𝓰 𝓲𝓼 𝓻𝓮𝓪𝓵 𝓪𝓷𝓭 𝓷𝓸𝓽𝓱𝓲𝓷𝓰 𝓽𝓸 𝓰𝓮𝓽 𝓱𝓾𝓷𝓰 𝓪𝓫𝓸𝓾𝓽. ❞
  ⠀⠀𝘥𝘯𝘪 : 𝘣𝘢𝘴𝘦, 𝘱𝘦𝘰𝘱𝘭𝘦 𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘱𝘢𝘴𝘵 / 𝘧𝘰𝘳𝘮𝘦𝘳 𝘧𝘳𝘪𝘦𝘯𝘥𝘴, 𝘩𝘺𝘱𝘰𝘤𝘳𝘪𝘵𝘦𝘴
@@ -30,6 +29,7 @@
  
  <img width="250" height="141" alt="tumblr_2dbd33ba006da4aa5bcb9a53b0ef30d0_d26fef54_250" src="https://github.com/user-attachments/assets/ac6cf6ae-c086-4d47-bfb0-96f037633575" /> <img width="250" height="141" alt="tumblr_a4358bc28263ed5d1430c42b7cf8cfdc_333b7ffe_250" src="https://github.com/user-attachments/assets/5be07a84-4693-48de-b5cf-e8074be46eef" /> <img width="250" height="141" alt="tumblr_acc29a93f840af3b0a47f419016bedba_d4c43029_250" src="https://github.com/user-attachments/assets/00072bb9-5200-4767-9432-af7fa87e8136" /> 
  <img width="400" height="54" alt="tumblr_fdfda1de238a4332f821d5c13282d711_bcc4c355_400" src="https://github.com/user-attachments/assets/c73b48b1-0208-43de-b7b6-27dbe31c620f" />
+ ![](https://komarev.com/ghpvc/?username=antifous&label=you+feel+a+fool+&style=flat&abbreviated=true)
  
  
 
