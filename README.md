@@ -11,6 +11,11 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ <img width="400" height="54" alt="tumblr_fdfda1de238a4332f821d5c13282d711_bcc4c355_400" src="https://github.com/user-attachments/assets/c73b48b1-0208-43de-b7b6-27dbe31c620f" />
  
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://komarev.com/ghpvc/?username=antifous&label=you+feel+a+fool+&style=flat&abbreviated=true)
+
+<a href="https://t.me/antifous" target="_blank"> <img align="center" src="https://shields.io" alt="Telegram"/>
+</a>
+
+[Telegram](https://t.me/antifous)
  
  
 
